@@ -44,39 +44,22 @@ Revindica una nueva forma de exponer lo que sucede a través de la metáfora, im
 Aparece la figura de Heráclito, todo es.
 El ser no es, el ser fluye
 
+#### Critica a la metafísica
+Viene dada por la crítica al lenguaje.
+Desde los tiempos de Platón se dividen dos mundos, ese dualismo hace que la realidad se subvierta y demos lo verdadero por lo real y lo real por lo falso. Ante el pánico crean un mundo estático de categorias y de cosas que permanecen estáticas.
+La metafísica intenta dar orden a algo que no lo tiene.
 
+Una vez critica estos planteamientos, recurre al vitalismo
 
+Se inserta en esta corriente que entiende la vida como el único objeto de estudio realmente aprovechable. Entiende la vida por un lado como un proceso físico donde suceden cosas en un mundo natural, pero también es algo sometido a un instinto, una voluntad. Se crean fenómenos sociales, culturales, artísticos, que se manifiestan de alguna forma.
+El lenguaje es una forma humana de mostrar esto, pero el lenguaje que intenta acotar la realidad es un lenguaje esteril, donde las metáforas, los símbolos, aforísmos y sentencias breves no intenten encerrarlo, si no que den apertura a interpretaciones de los hechos. Con ello intenta refrutar lo propuesto por el idealismo.
 
+#### Lo apolineo y lo dionisiaco (Apolo y Dionisios)
 
+Platea a traves de esta oposición una metáfora donde encuentra un terreno adecuado para explicar que la vida fluye dentro de uno y al alrededor.
+Apolo es el Dios del Sol, de la razón, del orden y lo simétrico. Ejemplo de los canones de belleza, el cultivo racional del conocimiento. Metáfora del principio de individuación (dar con las definiciones, contretar las características en un individuo). Ej: Arquitectura - Es apolinea
+En occidente ha predominado el cultivo de lo Apolineo, donde el cultivo de la razón se inpone a lo Dionisiaco
 
+Lo Dionisio simboliza la fiesta, la procreación, el desenfreno, etc INSTINTIVO. Se manifiesta a través de ritos, ceremonias, tragedias. Fuerza oculta entre occidente.
 
-
-
-
-
-
-
-
-
-
-
-
-
-### Vertiente comercial
-- **Jaciento Benavente**: *Los intereses creados* Comedia burguesa
-
-### Vertiente Renovadora:
-
-- **Valle Inclán**: *El marqués de bradomín* Teatro poético
-- **Miguel de Unamuno**: *Soledad* Problemas humanos
-- **Azorín**: *Angelita* Renovador, felicidad tiempo y muerte
-
-### Generación del 27
-- **Lorca**: *La casa de Bernarda Alba* y *Yerna* Protagonismo de personajes femeninos
-
-### Posguerra
-Técnicas extranjeras
-
-- **Enrique Jardiel Poncela**: *Eloísa está debajo de un almendro*.
-- **Alejandro Casona**: *La dama del Alba*
-- **Miguel Mihura**: *Tres sombreros de copa*
+Propone un equilibrio entre los dos impulsos y evitar que se esté sometido a uno. Se ejemplifica en el arte. El arte más instintivo es la música.
